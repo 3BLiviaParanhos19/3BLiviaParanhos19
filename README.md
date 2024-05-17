@@ -10,8 +10,6 @@ Meu nome é Lívia Paranhos
 0001094373308sp@al.educacao.sp.gov.br
 
 
+
 ![](https://media1.tenor.com/m/L2tHUxMLXXIAAAAC/doja-cat-doja.gif
 )
-
-
- ![] https://media1.tenor.com/m/L2tHUxMLXXIAAAAC/doja-cat-doja.gif
